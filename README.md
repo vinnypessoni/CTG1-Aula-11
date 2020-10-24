@@ -11,3 +11,5 @@
 "A sabedoria não vem do certo, mas sim do aprendizado com os erros." - Monja Coen
 
 "Se avexe não, amanhã pode acontecer tudo, inclusive nada" ― Flavio Jose
+
+“The universe is big. It’s vast and complicated and ridiculous. And sometimes, very rarely, impossible things just happen and we call them miracles.” -The Eleventh Doctor (Doctor Who).
