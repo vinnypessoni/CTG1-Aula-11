@@ -8,3 +8,5 @@
 
 "Se avexe não, amanhã pode acontecer tudo, inclusive nada" ― Flavio Jose
 
+"A sabedoria não vem do certo, mas sim do aprendizado com os erros." - Monja Coen
+
