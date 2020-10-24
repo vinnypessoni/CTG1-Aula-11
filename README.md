@@ -7,3 +7,5 @@
 "I have nothing to prove to you."― Captain Marvel (Captain Marvel)
 
 "Você nunca estará SEMPRE MOTIVADO, por isso você deve aprender a ser SEMPRE DISCIPLINADO" - Desconhecido
+
+"Se avexe não, amanhã pode acontecer tudo, inclusive nada" ― Flavio Jose
