@@ -1,4 +1,4 @@
-# CTG1-Aula-12 
+# CTG1-Aula-12 - Exercício para se habituar com o GIT - Incluir uma citação que goste
 
 "Fire is catching and if we burn, you burn with us!" ― Katniss Everdeen (The Hunger Games)
 
