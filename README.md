@@ -5,3 +5,6 @@
 "It is our choices, Harry, that show what we truly are, far more than our abilities." ― Dumbledore (Harry Potter and the Chamber of Secrets)
 
 "I have nothing to prove to you."― Captain Marvel (Captain Marvel)
+
+"Se avexe não, amanhã pode acontecer tudo, inclusive nada" ― Flavio Jose
+
