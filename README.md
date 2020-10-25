@@ -11,3 +11,5 @@
 "A sabedoria não vem do certo, mas sim do aprendizado com os erros." - Monja Coen
 
 "Se avexe não, amanhã pode acontecer tudo, inclusive nada" ― Flavio Jose
+
+"Insista, persista e nunca desista!" (Autor Desconhecido)
