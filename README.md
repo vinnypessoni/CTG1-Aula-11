@@ -12,7 +12,8 @@
 
 "Se avexe não, amanhã pode acontecer tudo, inclusive nada" ― Flavio Jose
 
+“The universe is big. It’s vast and complicated and ridiculous. And sometimes, very rarely, impossible things just happen and we call them miracles.” -The Eleventh Doctor (Doctor Who).
+
 "A perseverança e a força de vontade têm efeitos mágicos na superação das dificuldades da vida. Quem supera, vence." - Prof Lourdes Duarte 
 
 " Parte da jornada é o fim." - Tony Stark
-
