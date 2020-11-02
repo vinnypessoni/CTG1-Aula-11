@@ -23,3 +23,4 @@ Obs. OBRIGADA TAINA por compartilhar seu documento com passo-a-passo do git, sem
 
 " Parte da jornada é o fim." - Tony Stark
 
+"Importante não é ver o que ninguém nunca viu, mas sim, pensar o que ninguém nunca pensou sobre algo que todo mundo vê." - Arthur Schopenhauer
