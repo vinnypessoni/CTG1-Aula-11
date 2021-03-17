@@ -1,4 +1,4 @@
-# CTG1-Aula-12 - Exercício para se habituar com o GIT - Incluir uma citação que goste
+# CTG1-Aula-11 - Exercício para se habituar com o GIT - Incluir uma citação que goste
 
 *(A única maneira de não cometer erros é fazendo nada. Este, no entanto, é certamente um dos maiores erros que se poderia cometer em toda uma existência.)
 Obs. OBRIGADA TAINA por compartilhar seu documento com passo-a-passo do git, sem dúvida me ajudou bastante. Galerinha do grupo, obrigada por ter a disposição em ajudar a coleguinha atrapalhada...rs.
