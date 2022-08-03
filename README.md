@@ -33,3 +33,5 @@ What you get by achieving your goals is not as important as what you become by a
 "Nada é tão ruim que não possa piorar ou tão bom que não possa melhorar."
 
 "Jamais considere seus estudos como uma obrigação, mas como uma oportunidade invejável para aprender a conhecer a beleza libertadora do intelecto para seu próprio prazer pessoal e para proveito da comunidade à qual seu futuro trabalho pertencer." (Albert Einstein)
+
+"Não sei falar inglês AINDA, então fico aqui com meu oxente." (Algum Nordestino)
