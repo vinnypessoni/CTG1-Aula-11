@@ -33,6 +33,8 @@ What you get by achieving your goals is not as important as what you become by a
 
 "Jamais considere seus estudos como uma obrigação, mas como uma oportunidade invejável para aprender a conhecer a beleza libertadora do intelecto para seu próprio prazer pessoal e para proveito da comunidade à qual seu futuro trabalho pertencer." (Albert Einstein)
 
+“O que vale na vida não é o ponto de partida e sim a caminhada. Caminhando e semeando, no fim terás o que colher. ” – Cora Coralina
+
 "The distance is nothing when one has a motive." ― Jane Austen
 
 "Love is wise, hatred is foolish." (Bertrand Russell)
