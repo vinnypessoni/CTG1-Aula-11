@@ -33,6 +33,8 @@ What you get by achieving your goals is not as important as what you become by a
 
 "Jamais considere seus estudos como uma obrigação, mas como uma oportunidade invejável para aprender a conhecer a beleza libertadora do intelecto para seu próprio prazer pessoal e para proveito da comunidade à qual seu futuro trabalho pertencer." (Albert Einstein)
 
+"Estranho é acreditar que você terá resultados diferentes fazendo sempre a mesma coisa". (Albert Einstein)
+
 "As pessoas não são felizes porque são bem-sucedidas. Elas são bem-sucedidas porque são felizes." Jeff Sutherland
 
 “O que vale na vida não é o ponto de partida e sim a caminhada. Caminhando e semeando, no fim terás o que colher. ” – Cora Coralina
@@ -44,3 +46,4 @@ What you get by achieving your goals is not as important as what you become by a
 " A persistência é o caminho do êxito."
 
 "Não sei falar inglês AINDA, então fico aqui com meu oxente." (Algum Nordestino)
+
