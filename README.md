@@ -33,9 +33,10 @@ What you get by achieving your goals is not as important as what you become by a
 
 "Jamais considere seus estudos como uma obrigação, mas como uma oportunidade invejável para aprender a conhecer a beleza libertadora do intelecto para seu próprio prazer pessoal e para proveito da comunidade à qual seu futuro trabalho pertencer." (Albert Einstein)
 
+"The distance is nothing when one has a motive." ― Jane Austen
+
 "Love is wise, hatred is foolish." (Bertrand Russell)
 
 " A persistência é o caminho do êxito."
 
 "Não sei falar inglês AINDA, então fico aqui com meu oxente." (Algum Nordestino)
-
