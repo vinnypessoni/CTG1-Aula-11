@@ -48,3 +48,7 @@ What you get by achieving your goals is not as important as what you become by a
 "Não sei falar inglês AINDA, então fico aqui com meu oxente." (Algum Nordestino)
 
 "we can walk our road together, if our goals are all the same" - Neil Peart
+
+"As grandes ideias surgem da observação de pequenos detalhes" Augusto Cury
+
+
