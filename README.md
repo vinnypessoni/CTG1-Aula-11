@@ -51,4 +51,4 @@ What you get by achieving your goals is not as important as what you become by a
 
 "As grandes ideias surgem da observação de pequenos detalhes" Augusto Cury
 
-
+“We are captives of our own identities, living in prisons of our own creation.” – Theodore Bagwell
