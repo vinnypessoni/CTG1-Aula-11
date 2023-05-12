@@ -51,4 +51,5 @@ What you get by achieving your goals is not as important as what you become by a
 
 "As grandes ideias surgem da observação de pequenos detalhes" Augusto Cury
 
+“Você tem poder sobre sua mente – não sobre eventos externos. Perceba isso e você encontrará a sua força.” – Marco Aurélio.
 
