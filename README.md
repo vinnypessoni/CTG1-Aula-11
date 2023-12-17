@@ -3,6 +3,8 @@
 \*(A única maneira de não cometer erros é fazendo nada. Este, no entanto, é certamente um dos maiores erros que se poderia cometer em toda uma existência.)
 Obs. OBRIGADA TAINA por compartilhar seu documento com passo-a-passo do git, sem dúvida me ajudou bastante. Galerinha do grupo, obrigada por ter a disposição em ajudar a coleguinha atrapalhada...rs.
 
+"Fardo leve e julto Suave".
+
 "Fire is catching and if we burn, you burn with us!" ― Katniss Everdeen (The Hunger Games)
 
 "It is our choices, Harry, that show what we truly are, far more than our abilities." ― Dumbledore (Harry Potter and the Chamber of Secrets)
